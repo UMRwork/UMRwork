@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @UMRwork
-- 👀 I’m interested in making sites
+- 👀 I’m interested in making websites
 - 🌱 I’m currently learning Information Technology
 - 💞️ I’m looking to collaborate with people who is intersted for project assistances that I can help
 - 📫 How to reach me umarur147@gmail.com
