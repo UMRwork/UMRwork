@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @UMRwork
-- 👀 I’m interested in making anything with codings
+- 👀 I’m interested in making anything with codings no matter what language
 - 🌱 I’m currently learning Information Technology
 - 💞️ I’m looking to collaborate with people who is intersted for project assistances that I can help
 - 📫 How to reach me umarur147@gmail.com
